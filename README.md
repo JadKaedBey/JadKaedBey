@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tech Lead @ Operativo :flag_italy:<br>Ai Student @ Kaunas University of Technology :flag_lithuania:<br>Formula Student Driverless Alumni ⚡
+Tech Lead @ Operativo 🇮🇹<br>Ai Student @ Kaunas University of Technology 🇱🇹<br>Formula Student Driverless Alumni ⚡
 
 
 ## 🌐 Socials:
